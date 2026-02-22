@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BECL860224HDFRSS09
+BECL860224HDFRSS09
